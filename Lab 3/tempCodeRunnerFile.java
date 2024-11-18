@@ -1,0 +1,1 @@
+The equation has no solution.
